@@ -7,8 +7,6 @@
 
 - 🌱 I’m currently learning **on DSA and some ethical technology.**
 
-- 📝 I regularly write articles on [linktr.ee/mayur1307](linktr.ee/mayur1307)
-
 - 📫 How to reach me **mayur13072@gmail.com**
 
 - ⚡ Fun fact **The most used letter in the English language is 'E'!🤣**
